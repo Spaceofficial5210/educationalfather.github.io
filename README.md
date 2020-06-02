@@ -1,1 +1,0 @@
-# educationalfather.github.io
